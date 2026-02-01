@@ -2,7 +2,9 @@
 
 最新地址：[lightspeed.club](https://a01.gsyvipaff.cc/#/?code=pTNKN8XZ)
 
-优惠码：[ok88](https://a01.gsyvipaff.cc/#/?code=pTNKN8XZ)  （可叠加半年付9折，年付8折，俩年付75折，三年付7折优惠）
+优惠码：[nn88](https://a01.gsyvipaff.cc/#/?code=pTNKN8XZ)  （可叠加半年付9折，年付8折，俩年付75折，三年付7折优惠）
+
+年付以下套餐85折优惠码：[mm85](https://a01.gsyvipaff.cc/#/?code=pTNKN8XZ)
 
 ## 光速云(LightSpeed Cloud)简介
 
